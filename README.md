@@ -1,4 +1,4 @@
-## Boas Vindos Rapaziada 🔥🔥
+## Bem Vindos Rapaziada 🔥🔥
 
 Meu nome é Matheus Henrique
 
